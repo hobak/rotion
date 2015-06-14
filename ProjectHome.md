@@ -1,0 +1,1 @@
+Every one who play Ragnarok Online wants make a litle animation for forum Avatar or signature. Rotion - is the easy way to do this.
